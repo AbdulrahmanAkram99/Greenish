@@ -12,5 +12,6 @@
 5- احمد طاارق فرج : متخصص في قياس الأداء التسويقي وإعداد التقارير . 
 
 اسم المحاضر : د/ تامر المغازي
+لينك جوجل درايف : https://drive.google.com/drive/folders/1kUuORwscy901rx98VI3xnuQOa1_s19vq?usp=sharing
 
  
